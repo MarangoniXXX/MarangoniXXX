@@ -1,4 +1,4 @@
-![Naruto Triste](https://media.giphy.com/media/3o6Zt481isNVuQI1l6/giphy.gif)
+![Naruto Triste]([https://media.giphy.com/media/3o6Zt481isNVuQI1l6/giphy.gif](https://media1.tenor.com/m/h2b3FKraS3EAAAAC/anime-naruto.gif))
 
 # 👋 Olá, eu sou o Murilo Morini Marangoni
 
