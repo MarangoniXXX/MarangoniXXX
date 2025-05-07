@@ -1,4 +1,4 @@
-![Naruto Triste]([[https://media.giphy.com/media/3o6Zt481isNVuQI1l6/giphy.gif](https://media1.tenor.com/m/h2b3FKraS3EAAAAC/anime-naruto.gif)](https://tenor.com/view/anime-naruto-sad-bored-gif-4493321))
+![Naruto Triste](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZXZjb2dlMHJzYXo0MGMzNzRrNXN1aG54M3I4a2M5eXhqNTd5dW1qOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tRWPEUIpuKAtq/giphy.gif)
 
 # 👋 Olá, eu sou o Murilo Morini Marangoni
 
